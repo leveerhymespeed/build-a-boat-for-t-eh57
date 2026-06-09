@@ -1,4 +1,4 @@
-
+no-ban Script for build a boat for treasure is the best build a boat for treasure Script, featuring one-hit kill and speed. Safe and powerful for all
 
 
 
